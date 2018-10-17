@@ -54,7 +54,7 @@ Bi kayyûmin kâmes sirru fîhi ve eşrakat
 Kayyum ismin hürmetine, kalbimi kirlerinden temizleyerek ihya et.
 Ona senin sırrın yerleşip ışık saçsın.
 
-9.
+9
 Aleyye dıyâün min bevârikı nûrihî
 Felâha alâ vechî senâün ve ebrakat
 
